@@ -13,13 +13,13 @@ Put First topic here
 
 ## Custom-Built Desktop
 
-- [This is a Sample Image](https://static.vecteezy.com/system/resources/thumbnails/009/273/280/small/concept-of-loneliness-and-disappointment-in-love-sad-man-sitting-element-of-the-picture-is-decorated-by-nasa-free-photo.jpg)
+- [This is a Sample link ](https://static.vecteezy.com/system/resources/thumbnails/009/273/280/small/concept-of-loneliness-and-disappointment-in-love-sad-man-sitting-element-of-the-picture-is-decorated-by-nasa-free-photo.jpg)
 - sampe text for image
 - Total Cost (CAD): <B>$2309.65</B>
 
 ## Next Topic 
-
-- [This is a Sample Image](https://static.vecteezy.com/system/resources/thumbnails/009/273/280/small/concept-of-loneliness-and-disappointment-in-love-sad-man-sitting-element-of-the-picture-is-decorated-by-nasa-free-photo.jpg)
+this is a sample image
+![image](https://static.vecteezy.com/system/resources/thumbnails/009/273/280/small/concept-of-loneliness-and-disappointment-in-love-sad-man-sitting-element-of-the-picture-is-decorated-by-nasa-free-photo.jpg)
 - sampe text for image
 - Total Cost (CAD): <B>$2309.65</B>
 
