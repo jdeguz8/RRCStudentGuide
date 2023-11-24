@@ -11,7 +11,7 @@ This blog will go into depth on health and wellness at red river college, we hav
 ## First topic
 [Benjamin this is where your topic goes]
 
-## Second topic
+## Mental Health Services
 Red River College Polytechnic: Healthy Minds Healthy College (rrc.ca) 
 
 Red River College Polytechnic is working to be a supportive and healthy place to learn and work. Good mental health helps us live the life we want and contribute to a community, while reaching academic and career goals. 
