@@ -12,7 +12,31 @@ This blog will go into depth on health and wellness at red river college, we hav
 [Benjamin this is where your topic goes]
 
 ## Second topic
-[Augustina this is where your topic goes]
+Red River College Polytechnic: Healthy Minds Healthy College (rrc.ca) 
+
+Red River College Polytechnic is working to be a supportive and healthy place to learn and work. Good mental health helps us live the life we want and contribute to a community, while reaching academic and career goals. 
+
+Sometimes it is a struggle for students and staff to maintain good mental health, and when that happens there are support and resources to assist you. 
+
+Staff and faculty can find additional mental health support and information on Staff Forum. 
+
+VISIT STAFF FORUM 
+
+ 
+
+Counselling Services for Students: 
+
+              Counselling is available for students during study week and for upcoming weeks as may be necessary. Now, counselling is available by phone and soon video conferencing. 
+
+If you already have a counsellor, contact your counsellor by email. 
+
+If you wish to contact a counsellor and book a first-time appointment, please complete our online form. 
+
+For students attending Regional Campuses, counselling is available through a local provider. 
+
+Please contact your Regional Campus counsellor directly for appointments. They will advise regarding their current mode of service delivery. 
+
+ 
 
 ## Third topic
 [Denzel this is where your topic goes]
