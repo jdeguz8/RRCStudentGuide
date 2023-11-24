@@ -41,8 +41,60 @@ Please contact your Regional Campus counsellor directly for appointments. They w
 ## Third topic
 [Denzel this is where your topic goes]
 
-## Fourth topic
-[Tanvir this is where your topic goes]
+## Student Health Center
+In the journey through school, students face lots of things - schoolwork stress, personal stuff, and more. Red River College Polytechnic in Winnipeg knows this and has a special place called the Student Health Center. It's like a superhero for student health, helping with both body and mind. 
+
+ 
+
+Comprehensive Health Services: 
+
+ 
+
+The Red River College Polytechnic Student Health Center is a multifaceted facility that provides a range of health services. From basic medical care for common illnesses to preventive services such as vaccinations, the center is equipped to address the diverse health needs of students. The inclusion of a qualified medical staff ensures that students have access to professional healthcare within the convenience of the campus. 
+
+ 
+
+Link to Red River College Student Health Services 
+
+ 
+
+Mental Health Support: 
+
+ 
+
+Recognizing the importance of mental health, the Student Health Center at Red River College Polytechnic places a strong emphasis on providing mental health support services. Trained counselors are available to assist students facing stress, anxiety, or other mental health challenges. This proactive approach reflects the college's commitment to nurturing not only academic success but also the holistic well-being of its students. 
+
+ 
+
+Link to Red River College Mental Health Resources 
+
+ 
+
+Health Education and Promotion: 
+
+ 
+
+The Student Health Center goes beyond reactive measures by actively engaging in health education and promotion initiatives. Workshops, seminars, and informational campaigns are organized to raise awareness about crucial health topics, empowering students to make informed decisions about their well-being. This proactive approach aligns with the college's commitment to fostering a healthy and informed student community. 
+
+ 
+
+Link to Red River College Wellness Education 
+
+ 
+
+Accessibility and Inclusivity: 
+
+ 
+
+The Student Health Center at Red River College Polytechnic is designed with inclusivity in mind. It ensures accessibility for all students, irrespective of their backgrounds or abilities. This commitment to inclusivity creates an environment where every student feels comfortable seeking the care and support they need to thrive both academically and personally. 
+
+ 
+
+Link to Red River College Accessibility Services 
+
+ 
+
+To sum up, the Red River College Polytechnic Student Health Center is like a best friend for students. It helps with health problems, supports mental health, teaches about staying healthy, and makes sure everyone can use its services. As the college keeps investing in student health, it shows that they care about students doing well in everything – not just in class. 
 
 #Conclussion
 
