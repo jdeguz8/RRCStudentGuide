@@ -9,7 +9,19 @@ This blog will go into depth on health and wellness at red river college, we hav
 
 
 ## First topic
-[Benjamin this is where your topic goes]
+Hello everyone, my name is Benjamin and I go to Red River College Polytechnic. In this blog post, I want to share with you some of the wellness activities and dietary services that are available for students at RRC Polytech. These are some of the ways that I take care of my physical and mental health while studying on campus.
+
+One of the wellness activities that I enjoy is Sports. RRC Polytech offers different varieties of sporting equipment at the Notre Dame Campus and few at the exchange distinct campus like the table tennis. playing sports helps me relax, stretch, and breathe better. It also releases stress and improves my concentration. You can find more details about RRC Sports  here:   ![image](https://www.rrc.ca/well-being/sport.jpg)
+
+Another wellness activity that I like is painting. RRC Polytech organizes monthly paint nights where you can unleash your creativity and have fun with other students and staff. The paint nights are virtual, so you can join from anywhere. You just need to get your own supplies and follow the instructions from the instructor. You can also show off your artwork and win prizes. You can find more information and sign up for the paint nights here::  ![image](https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-2.jpg)
+
+One of the dietary services that I use is the cooking for wellness program. This is a virtual program where you can learn how to prepare healthy and delicious meals with simple ingredients. The program also teaches you about nutrition, food safety and budgeting. To register for the next virtual session , You can click here: https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-2/.
+
+These are just some of the wellness activities and dietary services that RRC Polytech offers to support the well-being of students and staff. There are many more options to choose from, such as meditation, recreational games, sports, etc. You can explore them all here: https://www.rrc.ca/well-being/
+
+I hope you enjoyed reading this blog post and found it useful. If you have any questions or comments,  please feel free to leave them below.
+ Thank you for your time and attention. Do have a great day!
+
 
 ## Mental Health Services
 Red River College Polytechnic: Healthy Minds Healthy College (rrc.ca) 
