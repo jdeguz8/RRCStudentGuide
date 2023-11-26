@@ -8,7 +8,7 @@
 This blog will go into depth on health and wellness at red river college, we have the privliedge to hear about first hand on the experiences and findings of real life students on campus! In this blog students from the Business Information Technology and IT operations will collab to share their feedback on all the types of health and wellness related inquiries one might have as a new student. These topics will be extremly helpful, as touch base on fitness, mental health, programs we offer, health insurance we offer and so much more!
 
 
-## First topic
+## Wellness activities and dietary services
 Hello everyone, my name is Benjamin and I go to Red River College Polytechnic. In this blog post, I want to share with you some of the wellness activities and dietary services that are available for students at RRC Polytech. These are some of the ways that I take care of my physical and mental health while studying on campus.
 
 One of the wellness activities that I enjoy is Sports. RRC Polytech offers different varieties of sporting equipment at the Notre Dame Campus and few at the exchange distinct campus like the table tennis. playing sports helps me relax, stretch, and breathe better. It also releases stress and improves my concentration. You can find more details about RRC Sports  here:https://www.rrc.ca/well-being/sport/
