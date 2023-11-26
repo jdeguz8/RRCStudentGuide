@@ -15,6 +15,7 @@ One of the wellness activities that I enjoy is Sports. RRC Polytech offers diffe
 ![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2023/09/well-being-sport-banner-1536x614.jpg)
 
 Another wellness activity that I like is painting. RRC Polytech organizes monthly paint nights where you can unleash your creativity and have fun with other students and staff. The paint nights are virtual, so you can join from anywhere. You just need to get your own supplies and follow the instructions from the instructor. You can also show off your artwork and win prizes. You can find more information and sign up for the paint nights here::https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-
+![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2022/08/Wellness-Events-Monthly-Calendar-Blog-Promo-1200x628-2x-Final-2-1536x804.jpg)
 
 One of the dietary services that I use is the cooking for wellness program. This is a virtual program where you can learn how to prepare healthy and delicious meals with simple ingredients. The program also teaches you about nutrition, food safety and budgeting. To register for the next virtual session , You can click here: https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-2/.
 
@@ -22,6 +23,7 @@ These are just some of the wellness activities and dietary services that RRC Pol
 
 I hope you enjoyed reading this blog post and found it useful. If you have any questions or comments,  please feel free to leave them below.
  Thank you for your time and attention. Do have a great day!
+ ![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2023/11/53187999520_779b2a59bc_o-768x512.jpg)
 
 
 ## Mental Health Services
