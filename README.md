@@ -53,8 +53,25 @@ Please contact your Regional Campus counsellor directly for appointments. They w
 
  
 
-## Third topic
-[Denzel this is where your topic goes]
+## Student Health Insurance Plan
+Health insurance is a crucial aspect of student life, ensuring that you have access to necessary medical care and support when you need it. Red River College understands the importance of student well-being and offers a comprehensive health insurance plan to meet the diverse needs of its student body. In this guide, we will explore the key features and coverage details of the health insurance provided at RRC.
+
+Medical Coverage:
+RRC Health insurance covers a wide range of medical services, including doctor visits, hospital stays, emergency care, and prescription medications. Whether you need routine check-ups or specialized treatments, the plan is designed to support your health needs. Make sure to check the network of healthcare providers to ensure you receive maximum coverage.
+
+Mental Health Support:
+Red River College recognizes the importance of mental health and offers coverage for counseling and psychiatric services. Students can access mental health resources to address a variety of concerns, from stress and anxiety to more complex mental health conditions.
+
+Vision and Dental Care:
+RRC Health Insurance also includes coverage for vision and dental care, ensuring that students can maintain their overall health. Regular eye exams, prescription glasses, dental check-ups, and necessary treatments are all part of the comprehensive coverage provided.
+
+Access to Service On and Off Campus:
+Whether you're on campus or studying remotely, RRC Health Insurance provides flexibility in accessing healthcare services. The plan is designed to accommodate the diverse needs of students, ensuring that you can receive care wherever you are.
+
+Enrollment and Waiver Options:
+It's important for students to be aware of the enrollment process and deadlines for RRC Health Insurance. While the plan is automatically included in the student fees, there is an option to waive coverage if you have comparable health insurance. Understanding the enrollment and waiver process ensures that you have the coverage that best suits your needs.
+
+Red River College is committed to the well-being of its students, and the RRC Health Insurance reflects this commitment by providing comprehensive health insurance coverage. By understanding the details of the plan, students can make informed decisions about their healthcare and access the support they need to thrive both academically and personally.
 
 ## Student Health Center
 In the journey through school, students face lots of things - schoolwork stress, personal stuff, and more. Red River College Polytechnic in Winnipeg knows this and has a special place called the Student Health Center. It's like a superhero for student health, helping with both body and mind. 
