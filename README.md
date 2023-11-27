@@ -66,7 +66,7 @@ Upstairs from that court is A 2,200 square foot fitness centre located on the me
 ![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2022/04/RRC-Sports_Facilities_July-2017-018_sm.jpg)
 In the South gym, we have a 100-meter track located in Building A, which surrounds an open area multi purpose gymnasium. 
 
-<b?NOTRE DAME CAMPUS</b><br>
+<b>NOTRE DAME CAMPUS</b><br>
 Monday to Friday: 6:30am – 8:00pm<br>
 Saturday and Sunday: Closed<br>
 <br>
@@ -78,12 +78,14 @@ https://hub.rrc.ca/Forms/Start/GYMWAIVER
 
 You do have the option to bring a guest who is not a student, however they too will also need to sign the waiver along with an additional fee.
 for more information feel free to use the above contact info for phone number or email at recreation@rrc.ca
-
-
-
-
-
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 # Mental Health Services
 
  ![image](https://theprojector.ca/wp-content/uploads/2018/02/23012018-THEPROJECTORPHOTO2-CORTES-1.jpg)
@@ -122,7 +124,9 @@ Remember, your mental health is a priority. By incorporating these strategies in
 <br>
 <br>
 <br>
-
+<br>
+<br>
+<br>
 # Student Health Insurance Plan
 Hello students and staff at Red River College, my name is Denzel and I am a student here at RRC taking IT Opereations, I am please to talk about the health plans RRC has to offer.
 Health insurance is a crucial aspect of student life, ensuring that you have access to necessary medical care and support when you need it. Red River College understands the importance of student well-being and offers a comprehensive health insurance plan to meet the diverse needs of its student body. In this guide, we will explore the key features and coverage details of the health insurance provided at RRC. Extended Health and Dental coverage is available for eligible domestic and international students.
