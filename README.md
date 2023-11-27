@@ -38,8 +38,54 @@ I hope you enjoyed reading this blog post and found it useful. If you have any q
 <br>
 <br>
 
+# RRC Fitness Facilities
+Hello everyone, my name is Tanvir and I am an international student taking BIT at Red River College. Back in India I used to play many sports such as Volleyball and health and fitness is very important to me. Red River College supports many fitness activities thanks to their fitness facilities. They offer recreational services such as weight and machine work outs, treadmills and even offer classes.
+<br>
+Lets go over the facilities we offer along with their hours of operations and contact info!
+
+
+### RRC Polytech Exchange District Campus Facilities
+![PROJECTOR-scaled](https://github.com/jdeguz8/RRCStudentGuide/assets/143532789/f5ce773e-ec1b-459e-a7fb-e3d637096e08)
+
+The Exchange district Campus offers a 3,038 square foot fitness centre located in Room A107 on the main floor in the Adelaide Building with a variety of cardio and strength training equipment as well as a full locker room with showers.
+Cardio equipment includes treadmills, stair climbers, ellipticals, stationary bikes, and rowing machines. Strength training equipment includes squat racks, free weights, cable systems and more. I've personally seen this space because I do my studies in this campus and I can confidentlly say it has everything you will need to succeed in your fitness goals.  
+
+<b>EXCHANGE DISTRICT CAMPUS</b><br>
+Hours of Operation: 6:30am – 9:00pm<br>
+<br>
+Phone: 204.949.8499
+
+### RRC Polytech Notre Dame Campus Facilities
+![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2022/04/RRC-Sports_Facilities_July-2017-003_sm.jpg)
+
+One of the main things that seperate the Notredame Campus from the Exchange disctrict is the amazing full court located in the North Gym which can sport volleyball and basketball and other amazing activities 
+
+![image](https://bointl.net/wp-content/uploads/2019/12/RRC-11.jpg)
+Upstairs from that court is A 2,200 square foot fitness centre located on the mezzanine level of the North Gym with a variety of cardio and strength training equipment. Cardio equipment includes treadmills, stair climbers, ellipticals, stationary bikes, and rowing machines. Strength training equipment includes weight machines, squat racks, free weights, cable systems and more.
+
+![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2022/04/RRC-Sports_Facilities_July-2017-018_sm.jpg)
+In the South gym, we have a 100-meter track located in Building A, which surrounds an open area multi purpose gymnasium. 
+
+<b?NOTRE DAME CAMPUS</b><br>
+Monday to Friday: 6:30am – 8:00pm<br>
+Saturday and Sunday: Closed<br>
+<br>
+Phone: 204.632.2399
+
+Both the Exchange District Campus and Notre Dame Campus are avilable to use for  students, staff, alumni and the community.
+As a student, we do get access covered as part of our tuition, as will require you to submit a waiver form which can be found here: <br>
+https://hub.rrc.ca/Forms/Start/GYMWAIVER
+
+You do have the option to bring a guest who is not a student, however they too will also need to sign the waiver along with an additional fee.
+for more information feel free to use the above contact info for phone number or email at recreation@rrc.ca
+
+
+
+
+
 
 # Mental Health Services
+
  ![image](https://theprojector.ca/wp-content/uploads/2018/02/23012018-THEPROJECTORPHOTO2-CORTES-1.jpg)
 
 Hello, my name is Augustina, or Tina for short and I am here to speak to you about mental health, and what services here at Red River College we provide to Red River College Polytechnic is working to be a supportive and healthy place to learn and work. Good mental health helps us live the life we want and contribute to a community, while reaching academic and career goals.  it's easy for students to become overwhelmed by the demands of coursework, social pressures, and the uncertainty of the future. Nurturing your mental health is crucial for not only academic success but also overall well-being. Here's a concise guide to help you navigate the often-challenging terrain of student life.
@@ -54,6 +100,7 @@ Locations and Hours<BR>
 Notre Dame Campus – D102<Br>
 Monday – Friday: 8:00am – 4:00pm<br>
 Phone: 204-632-3966<br>
+
 
 The Roblin Centre – P210<BR>
 Monday – Friday: 8:00am – 4:00pm<BR>
@@ -95,7 +142,25 @@ It's important for students to be aware of the enrollment process and deadlines 
 Red River College is committed to the well-being of its students, and the RRC Health Insurance reflects this commitment by providing comprehensive health insurance coverage. By understanding the details of the plan, students can make informed decisions about their healthcare and access the support they need to thrive both academically and personally.
 
 ### Student Health Center
-In the journey through school, students face lots of things - schoolwork stress, personal stuff, and more. Red River College Polytechnic in Winnipeg knows this and has a special place called the Student Health Center. It's like a superhero for student health, helping with both body and mind. 
+In the journey through school, students face lots of things - schoolwork stress, personal stuff, and more. Red River College Polytechnic in Winnipeg knows this and has a special place called the Student Health Center. It's like a superhero for student health, helping with both body and mind.
+
+If you would like to talk about the coverages RRC offers in person please visit our branches below: <BR>
+Notre Dame Campus<BR>
+Phone: 204-632-2503<BR>
+Address: RRCSA Student Benefits Plan Office<BR>
+Room CM75C<BR>
+2055 Notre Dame Avenue<BR>
+Winnipeg, Manitoba. R3H 0J9<BR>
+<BR>
+
+Exchange District Campus<BR>
+Phone: 204-949-8537<BR>
+Address: The Roblin Centre<BR>
+SA Office P-110<BR>
+160 Princess Street<BR>
+Winnipeg, Manitoba. R3B 1K9<BR>
+<BR>
+Email: redriverplan@mystudentplan.ca
 
 More information on coverage can be found here: https://www.mystudentplan.ca/redriver/en/home
 <br>
@@ -103,59 +168,6 @@ More information on coverage can be found here: https://www.mystudentplan.ca/red
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
-Comprehensive Health Services: 
-
- 
-
-The Red River College Polytechnic Student Health Center is a multifaceted facility that provides a range of health services. From basic medical care for common illnesses to preventive services such as vaccinations, the center is equipped to address the diverse health needs of students. The inclusion of a qualified medical staff ensures that students have access to professional healthcare within the convenience of the campus. 
-
- 
-
-Link to Red River College Student Health Services 
-
- 
-
-Mental Health Support: 
-
- 
-
-Recognizing the importance of mental health, the Student Health Center at Red River College Polytechnic places a strong emphasis on providing mental health support services. Trained counselors are available to assist students facing stress, anxiety, or other mental health challenges. This proactive approach reflects the college's commitment to nurturing not only academic success but also the holistic well-being of its students. 
-
- 
-
-Link to Red River College Mental Health Resources 
-
- 
-
-Health Education and Promotion: 
-
- 
-
-The Student Health Center goes beyond reactive measures by actively engaging in health education and promotion initiatives. Workshops, seminars, and informational campaigns are organized to raise awareness about crucial health topics, empowering students to make informed decisions about their well-being. This proactive approach aligns with the college's commitment to fostering a healthy and informed student community. 
-
- 
-
-Link to Red River College Wellness Education 
-
- 
-
-Accessibility and Inclusivity: 
-
- 
-
-The Student Health Center at Red River College Polytechnic is designed with inclusivity in mind. It ensures accessibility for all students, irrespective of their backgrounds or abilities. This commitment to inclusivity creates an environment where every student feels comfortable seeking the care and support they need to thrive both academically and personally. 
-
- 
-
-Link to Red River College Accessibility Services 
-
- 
-
-To sum up, the Red River College Polytechnic Student Health Center is like a best friend for students. It helps with health problems, supports mental health, teaches about staying healthy, and makes sure everyone can use its services. As the college keeps investing in student health, it shows that they care about students doing well in everything – not just in class. 
-
 
 </body>
 </html>
