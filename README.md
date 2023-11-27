@@ -134,7 +134,7 @@ Health insurance is a crucial aspect of student life, ensuring that you have acc
 ### Medical Coverage:
 RRC Health insurance covers a wide range of medical services, including doctor visits, hospital stays, emergency care, vision care and prescription medications. Whether you need routine check-ups or specialized treatments, the plan is designed to support your health needs. Make sure to check the network of healthcare providers to ensure you receive maximum coverage. 2023-2024 Plan leaflet can be found here! https://mystudentplan.blob.core.windows.net/documents/mystudentplan/leaflet/RRCSA_mystudentplanLeaflet_2023.pdf
 
-###Dental Care:
+### Dental Care:
 RRC Dental care covers a maximum of <b>$750 per benefit year</b> including 80% coverage on diagnostic and preventage measures. 1 Polishing/cleaning per year, 70% minor restorative such as fillings and so much more. 
 
 ### Access to Service On and Off Campus:
