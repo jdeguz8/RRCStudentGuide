@@ -5,14 +5,14 @@
 
 # Health and Wellness Student Guide at Red River College
 
-This blog will go into depth on health and wellness at red river college, we have the privliedge to hear about first hand on the experiences and findings of real life students on campus! In this blog students from the Business Information Technology and IT operations will collab to share their feedback on all the types of health and wellness related inquiries one might have as a new student. These topics will be extremly helpful, as touch base on fitness, mental health, programs we offer, health insurance we offer and so much more! We hope our students first hand experience and their feedback can help you as individuals at RRC. 
+This blog will go into depth on health and wellness at red river college, we have the privliedge to hear about first hand on the experiences and findings of real life students on campus! In this blog students from the Business Information Technology and IT operations will collab to share their feedback on all the types of health and wellness related inquiries one might have as a new student. These topics will be extremly helpful, and touch base on fitness, mental health, programs we offer, health insurance we offer and so much more! As a new student, it can be overwhelming getting used to a new environment and with a heavy load of studies, it is likely that your every day tasks will take a drastic change and can affect your health. We hope our students first hand experience and their feedback can help you as individuals at RRC. 
 
 
 
 
  # Wellness activities and dietary services
  ![image](https://media.istockphoto.com/id/636707496/vector/healthy-living-banner-and-icons.jpg?s=612x612&w=0&k=20&c=4zbI3cXotLa-1E9VbbsP-oc0H_xHrs6UNSs1Jmd_-1U=)<br>
-  Hello everyone, my name is Benjamin and I study at Red River College Polytechnic. In this blog post, I want to share with you some of the wellness activities and dietary services that are available for students at RRC Polytech. These are some of the ways that I take care of my physical and mental health while studying on campus.</summary><br><br>
+  Hello everyone, my name is Benjamin and I study at Red River College Polytechnic and am enrolled in the BIT program. In this blog post, I want to share with you some of the wellness activities and dietary services that are available for students at RRC Polytech. These are some of the ways that I take care of my physical and mental health while studying on campus.</summary><br><br>
 
 
 One of the wellness activities that I enjoy is Sports. RRC Polytech offers different varieties of sporting equipment at the Notre Dame Campus and few at the exchange distinct campus like the table tennis. playing sports helps me relax, stretch, and breathe better. It also releases stress and improves my concentration. You can find more details about RRC Sports here: <br>https://www.rrc.ca/well-being/sport/
@@ -21,7 +21,7 @@ One of the wellness activities that I enjoy is Sports. RRC Polytech offers diffe
 Another wellness activity that I like is painting. RRC Polytech organizes monthly paint nights where you can unleash your creativity and have fun with other students and staff. The paint nights are virtual, so you can join from anywhere. You just need to get your own supplies and follow the instructions from the instructor. You can also show off your artwork and win prizes. You can find more information and sign up for the paint nights here: <br>https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-
 ![image](https://www.rrc.ca/well-being/wp-content/uploads/sites/96/2022/08/Wellness-Events-Monthly-Calendar-Blog-Promo-1200x628-2x-Final-2-1536x804.jpg)
 
-One of the dietary services that I use is the cooking for wellness program. This is a virtual program where you can learn how to prepare healthy and delicious meals with simple ingredients. The program also teaches you about nutrition, food safety and budgeting. To register for the next virtual session , You can click here: https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-2/.
+Having a proper diet when in school is important, it's easy for us to go through the day snacking on the vending machines, or ordering mnultiple times a day at Tim Hortons- because that is what is around our campus. One of the dietary services that I use is the cooking for wellness program. This is a virtual program where you can learn how to prepare healthy and delicious meals with simple ingredients. The program also teaches you about nutrition, food safety and budgeting. To register for the next virtual session , You can click here: https://www.rrc.ca/well-being/2023/10/24/campus-well-being-november-programs-2/.
 
 These are just some of the wellness activities and dietary services that RRC Polytech offers to support the well-being of students and staff. There are many more options to choose from, such as meditation, recreational games, sports, etc. You can explore them all here: <br> https://www.rrc.ca/well-being/
 
@@ -72,8 +72,8 @@ Saturday and Sunday: Closed<br>
 <br>
 Phone: 204.632.2399
 
-Both the Exchange District Campus and Notre Dame Campus are avilable to use for  students, staff, alumni and the community.
-As a student, we do get access covered as part of our tuition, as will require you to submit a waiver form which can be found here: <br>
+Both the Exchange District Campus and Notre Dame Campus are available to use for students, staff, alumni and the community.
+As a student, we do get access covered as part of our tuition, and will require you to submit a waiver form which can be found here: <br>
 https://hub.rrc.ca/Forms/Start/GYMWAIVER
 
 You do have the option to bring a guest who is not a student, however they too will also need to sign the waiver along with an additional fee.
@@ -90,7 +90,7 @@ for more information feel free to use the above contact info for phone number or
 
  ![image](https://theprojector.ca/wp-content/uploads/2018/02/23012018-THEPROJECTORPHOTO2-CORTES-1.jpg)
 
-Hello, my name is Augustina, or Tina for short and I am here to speak to you about mental health, and what services here at Red River College we provide to Red River College Polytechnic is working to be a supportive and healthy place to learn and work. Good mental health helps us live the life we want and contribute to a community, while reaching academic and career goals.  it's easy for students to become overwhelmed by the demands of coursework, social pressures, and the uncertainty of the future. Nurturing your mental health is crucial for not only academic success but also overall well-being. Here's a concise guide to help you navigate the often-challenging terrain of student life.
+Hello, my name is Augustina, or Tina for short and I am here to speak to you about mental health, and what services we offer here at Red River College. Good mental health helps us live the life we want and contribute to a community, while reaching academic and career goals.  it's easy for students to become overwhelmed by the demands of coursework, social pressures, and the uncertainty of the future. Nurturing your mental health is crucial for not only academic success but also overall well-being. Here's a concise guide to help you navigate the often-challenging terrain of student life.
 
 As students, we often shift our focus towards our assignments, deadlines and craft of our material. When we shift our focus onto these tasks, we often lose sight on something more important, self care. It's nice being on top of all your goals and aspirations, but what good is success if we're failing to take care of ourselves mentally. We often dont realize the effects on mental health has on us, until someone like a friend or relative addresses you with concern as they've noticed a shift on your behavior or awareness. Often times however, not everyone has the luxary of speaking with a friend or relative about what is weighing you down and thats where Red River College can assist.
 
